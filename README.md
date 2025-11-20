@@ -1,1 +1,2 @@
-# git-idly-shop
+# Preparing the idly for relatives
+
