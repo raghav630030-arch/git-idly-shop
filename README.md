@@ -5,5 +5,7 @@
 
 # Preparing the ravva idly
 1. Take Ravva as mush as you can.<br>
-2. atleast oka 5 hrs nanapettuko
+2. atleast oka 5 hrs nanapettuko. <br>
+
+3. Idly box lo pettu
 
